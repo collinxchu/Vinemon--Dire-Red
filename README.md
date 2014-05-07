@@ -1,6 +1,6 @@
 Vinemon--Dire-Red
 =================
 
-Jabronisauce vidya porkyman all day every day.
+Let's hope this gets used.
 
 Make sure to keep everyone in the loop and add James (Fronk) on steam to get permissions.
